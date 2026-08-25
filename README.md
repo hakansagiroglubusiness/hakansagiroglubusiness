@@ -15,4 +15,5 @@ I write it down as I go, failures included.
 
 ---
 
-Currently in Türkiye. Open to remote growth roles.
+Based in Türkiye. **Remote only.**
+[LinkedIn](https://www.linkedin.com/in/hakansgroglu/)
